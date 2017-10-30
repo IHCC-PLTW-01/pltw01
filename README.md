@@ -8,10 +8,20 @@ Mark Made additional changes
 
 Tiffany Baker
 =======
+
+
+Kiara Moyer
+=======
+=======
+William Alspaugh
+=======
+
+=======
 Devyn
 =======
 
 =======
+
 
 Crystal Lee
 
@@ -25,6 +35,12 @@ Drew Wilfawn
 William Alspaugh
 
 
+
+
+=======
+
+=======
+=======
 =======
 
 Freer was here
@@ -34,6 +50,7 @@ Freer was here
 
 =======
 Ethan Hendrickson
+
 
 Freer was here
 William Alspaugh
