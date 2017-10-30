@@ -11,12 +11,18 @@ Tiffany Baker
 
 
 
+
+Mark Van Velsor 
+
+=======
+=======
 Austin Crim
 =======
 Drew Wilfawn
 
 =======
 =======
+
 Kiara Moyer
 =======
 =======
@@ -41,6 +47,7 @@ Drew Wilfawn
 =======
 
 =======
+
 William Alspaugh
 
 
@@ -63,4 +70,6 @@ Ethan Hendrickson
 
 Freer was here
 William Alspaugh
+
 Andrew E.
+
