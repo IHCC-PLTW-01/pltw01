@@ -6,6 +6,11 @@ Mark Made additional changes
 
 
 
+Tiffany Baker
+=======
+
+
+
 
 
 Collin Svenby
@@ -15,19 +20,26 @@ Drew Wilfawn
 
 =======
 =======
+=======
+Mark Van Velsor 
 
+
+=======
+=======
 Austin Crim
 =======
 Drew Wilfawn
 
 =======
 =======
+
 Kiara Moyer
 =======
 =======
 William Alspaugh
 
 =======
+
 =======
 Devyn
 =======
@@ -45,6 +57,7 @@ Drew Wilfawn
 =======
 
 =======
+
 William Alspaugh
 
 
@@ -67,4 +80,6 @@ Ethan Hendrickson
 
 Freer was here
 William Alspaugh
+
 Andrew E.
+
