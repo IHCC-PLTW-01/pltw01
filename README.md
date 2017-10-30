@@ -17,10 +17,9 @@ William Alspaugh
 
 =======
 
+=======
+Ethan Hendrickson
+
 Freer was here
-=======
-=======
 William Alspaugh
-
 Andrew E.
-
